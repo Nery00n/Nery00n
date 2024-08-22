@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nery00n
-- 👀 I’m interested in learning to code!! 
+- 👀 I’m interested in coding!! 
 - 🌱 I’m currently studying electrical engineering!!
 - 💞️ I’m looking to collaborate on projects!!
 - 📫 How to reach me neryon.stk@gmail.com 
